@@ -1,4 +1,4 @@
-# referral-code
+# referral code
 huobi bitget binance okx bybit gate.io referral code
 
 https://btcviptrader.com/category/referral-code/
